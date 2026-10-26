@@ -1,0 +1,1 @@
+# Daniilsol200-Kursovai_ITD41_PSP_KOVALEVSKI
